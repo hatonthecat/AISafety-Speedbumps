@@ -6,6 +6,7 @@ https://www.bing.com/images/create/ai-safety-as-speed-bump-with-accelerationists
 ![_e750b025-6782-4f34-a250-b434fb36dcb9](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/aca93ca3-df8f-461b-a30f-616673f606d2)
 ![_8ec2ec31-a8cf-4278-bb8b-16f6b37c475e](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/d94417aa-45e5-4a58-8934-b0cd19b571cd)
 ![_fb141b0d-f18c-4977-86b0-59602ee02abc](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/668e1cc4-0e0d-4be1-8c2b-eeb50bd61b38)
-![_ce582339-7fe1-4ac8-8b47-d7ff369c51d6](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/32901c91-d121-453a-b06a-23f7142483d1)
+![OIG EgAS_ENfyEBRNKTPVu](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/bc33f223-cbe1-4023-adfc-522e967285d0)
+
 
 The generations didn't turn out perfect- the intention was to label speedbumps literally on a road or hindering a launch site.
