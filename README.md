@@ -10,3 +10,12 @@ https://www.bing.com/images/create/ai-safety-as-speed-bump-with-accelerationists
 
 
 The generations didn't turn out perfect- the intention was to label speedbumps literally on a road or hindering a launch site.
+
+These are a little more direct (albeit the wording is too, but this is a description of the perceived and real opposition between camps in the decel and e/acc, rather than my position on this.
+
+
+![_dd7a2adc-e981-40d2-8b0d-78b5ea03e862](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/63391919-4236-4ff4-8acc-238b315434de)
+![_63557107-9315-4c0d-b53c-e19668714538](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/c0f3ea6c-0abd-41fb-abc0-76132308a30c)
+![_49f0ec9e-ae3a-425b-a221-e021ca9d074a](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/78f691c1-9227-440b-bede-ea59bc1b7883)
+![_0506e739-76d6-4cd2-bc78-4597f92bd1cb](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/b0c3b714-3ff8-4563-93b8-464fea435f9d)
+
