@@ -13,7 +13,7 @@ The generations didn't turn out perfect- the intention was to label speedbumps l
 
 These are a little more direct (albeit the wording is too, but this is a description of the perceived and real opposition between camps in the decel and e/acc, rather than my position on this.
 
-
+https://www.bing.com/images/create/ai-safetyists-blocking-accelerationists-from-launc/1-655a99b21fd44b53b545a4b279982558?id=TepeWdIwhAU%2bwkLV3EA1DA%3d%3d&view=detailv2&idpp=genimg&FORM=GCRIDP&mode=overlay
 ![_dd7a2adc-e981-40d2-8b0d-78b5ea03e862](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/63391919-4236-4ff4-8acc-238b315434de)
 ![_63557107-9315-4c0d-b53c-e19668714538](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/c0f3ea6c-0abd-41fb-abc0-76132308a30c)
 ![_49f0ec9e-ae3a-425b-a221-e021ca9d074a](https://github.com/hatonthecat/AISafety-Speedbumps/assets/76194453/78f691c1-9227-440b-bede-ea59bc1b7883)
